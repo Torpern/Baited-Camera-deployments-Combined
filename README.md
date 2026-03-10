@@ -1,1 +1,0 @@
-# Baited-Camera-deployments-Combined
